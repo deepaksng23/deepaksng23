@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **deepaksng23@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Yri5nbbpcsU4_iXtHXIy6PNBjhAosCyR/view?usp=sharing](https://drive.google.com/file/d/1Yri5nbbpcsU4_iXtHXIy6PNBjhAosCyR/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
